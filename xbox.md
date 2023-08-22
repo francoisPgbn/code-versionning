@@ -1,0 +1,1 @@
+The Xbox Series X is intended to render games at 4K resolution at 60 frames per second, and can support up to 120 frames per second and can render up to 8K resolution. The Xbox Series X's console form is designed to be unobtrusive and minimalistic.

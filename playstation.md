@@ -1,0 +1,1 @@
+The PS5 is a genuine leap forward for console gaming, offering gorgeous 4K performance, stunningly fast load times and a truly game-changing controller that makes playing games more immersive and tactile than ever. It plays nearly all PS4 games, and, in many cases, allows them to run and load better than ever before.
